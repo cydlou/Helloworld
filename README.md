@@ -8,3 +8,6 @@ I'm currently a social media manager, and while I love the creativity aspects of
 
 #My Hobbies
 Besides from trying out the new coffee place in town, and still sticking to my favorites. I also love books, music (post-punk, goth, industrial, etc.) and platforms. 
+
+#Top 5 Books
+Interview with the Vampire, Pandora, Harry Potter Series, The Little Prince, and The Humans.
